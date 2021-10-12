@@ -1,0 +1,4 @@
+- 👋 Hi, I’m z3r0d4y
+- 👀 I’m interested in Programming, Ethical hacking, Developing...
+- 🌱 I’m currently learning Ethical Hacking
+- 📫 How to reach me - Discord: z3r0d4y
